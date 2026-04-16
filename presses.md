@@ -1,7 +1,7 @@
 # Presses
 
 - [Saskatchewan Poetry Society](https://www.facebook.com/groups/938382349366066/)
-- Deodar Shadow Press, founded by Andrew Suknaski (Wood River district)
+- Deodar Shadow Press, founded by [Andrew Suknaski](https://en.wikipedia.org/wiki/Andrew_Suknaski) (Wood River district), 1970-ish
 - Anak Press, founded by Andrew Suknaski (Wood River district)
 - Sundog Press, founded by Andrew Suknaski (Wood River district)
 - Waking Image Press, founded by Mick Burrs (Regina)
